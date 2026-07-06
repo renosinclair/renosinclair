@@ -9,9 +9,6 @@
 
 You can call me Reno or any other cosplay you see me in. You will often see me in my Reno or Childe cosplay. If you see me running around the map I'm prob just giving crowns to every cool pony I see. Feel free to c+h 24/7 it's highly encouraged! ALSO I love matching cosplays with others, please interact if you want to match cosplays of a common fandom we like.
 
-RUSSIAN 
-
-Если вы читаете это, значит, я, скорее всего, нахожусь на российском сервере. Для общения я использую переводчик. Не нужно писать мне по-английски, так как текст переводится автоматически. Мне нравится общаться с людьми; я отвечаю не сразу, потому что перевожу свои слова на русский язык, чтобы вам было удобнее.
 
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
 
