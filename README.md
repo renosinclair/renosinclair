@@ -1,5 +1,4 @@
 ## Reno/Emma
 
-<p align="center">
-  <img src="https://i.pinimg.com/1200x/fa/8e/a7/fa8ea7fc8c6ffb7fa253dbc83b8e82ff.jpg">
-</p>
+<img width="1198" height="444" alt="image" src="https://github.com/user-attachments/assets/37f08341-71d3-4e0f-8be9-1d13dfb84e8c" />
+
