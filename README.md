@@ -9,13 +9,13 @@ Hi! I'm Reno, if you are wanting to know more about me before you interact w/ me
 
 
 ・┈ ✦ ﹕name : Reno or any other nickname, you can also call me by the character I am cosplaying as
---
+*
 ・┈ ✦﹕ age : 15
---
+*
 ・┈ ✦﹕ my usual cosplays : Reno [can be found almost anywhere around the map] or Tartaglia/Childe [Genshin area]
---
+*
 ・┈ ✦﹕ likes : my friends, other cosplayers
---
+*
 
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
 
