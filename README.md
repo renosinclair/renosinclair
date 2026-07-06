@@ -8,13 +8,17 @@ Hi! I'm Reno, if you are wanting to know more about me before you interact w/ me
 ### ╭【   ♡・ Basic info 】  ・・
 
 ・┈ ✦ ﹕name : Reno or any other nickname, you can also call me by the character I am cosplaying as
+
 ・┈ ✦﹕ age : 15
+
 ・┈ ✦﹕ my usual cosplays : Reno [can be found almost anywhere around the map] or Tartaglia/Childe [Genshin area]
+
 ・┈ ✦﹕ likes : my friends, other cosplayers
 
 ╰╮ ✦﹕ other : 
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
-### STATUS INFO
+
+### ╭【   ♡・ Status info 】  ・・
 
  🟢 : Usually used when I'm wandering around, if you're here you might have seen me running around the map. If you see me pause a lot it's because I'm giving people crowns
  
@@ -26,7 +30,7 @@ Hi! I'm Reno, if you are wanting to know more about me before you interact w/ me
  
  ⛔ : My DNI, this is usually DNIUF unless it says otherwise in my name! Usually it's because I'm with a friend or currently unable to reply to any messages. This is STRICTLY towards messaging ect, you can still whisper crowns or sit with me! [I wouldn't play this game when I'm upset or something that's weird]
  
-### INT / DNI
+### ╭【   ♡・ INT / DNI 】  ・・
 
 INT : FF7, Genshin, HSR, Marvel, Cosplayers in general, people who are wantin to be friend obvi, yumeshippers
 
