@@ -35,7 +35,5 @@ Hi! I'm Reno, if you are wanting to know more about me before you interact w/ me
 
 INT : FF7, Genshin, HSR, Marvel, Cosplayers in general, people who are wantin to be friend obvi, yumeshippers
 
-DNI : Basic DNI, if you dislike yumeshippers or [fiction]kins (a lot of my friends are yumeshippers and kinnies), trolls please avoid me unless I interact first. Please avoid interacting with me if you are above the age of 18, you can whisper me a crown or compliment my ponies but please don't try to be my friend. Also 13- dni as well.
+DNI : Basic DNI, if you dislike yumeshippers or [fiction]kins (a lot of my friends are yumeshippers and kinnies), trolls please avoid me unless I interact first. 
 
-
--# if you have any questions check out my ata
