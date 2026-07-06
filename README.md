@@ -1,11 +1,19 @@
-# Reno/Emma BFYI + Info
+# Reno BFYI + Info
 
 <img width="670" height="222" alt="image" src="https://github.com/user-attachments/assets/37f08341-71d3-4e0f-8be9-1d13dfb84e8c" />
 
 -
 Hi! I'm Reno, if you are wanting to know more about me before you interact w/ me this is the place to be!
 
+### ╭【   ♡・ Basic info 】  ・・
 
+・┈ ✦ ﹕name : Reno or any other nickname, you can also call me by the character I am cosplaying as
+・┈ ✦﹕ age : 15
+・┈ ✦﹕ my usual cosplays : Reno [can be found almost anywhere around the map] or Tartaglia/Childe [Genshin area]
+・┈ ✦﹕ likes : my friends, other cosplayers
+
+╰╮ ✦﹕ other : 
+⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
 ### STATUS INFO
 
  🟢 : Usually used when I'm wandering around, if you're here you might have seen me running around the map. If you see me pause a lot it's because I'm giving people crowns
@@ -22,4 +30,7 @@ Hi! I'm Reno, if you are wanting to know more about me before you interact w/ me
 
 INT : FF7, Genshin, HSR, Marvel, Cosplayers in general, people who are wantin to be friend obvi, yumeshippers
 
-DNI : Basic DNI, if you dislike yumeshippers or [fiction]kins (a lot of my friends are yumeshippers and kinnies), trolls please avoid me unless I interact first
+DNI : Basic DNI, if you dislike yumeshippers or [fiction]kins (a lot of my friends are yumeshippers and kinnies), trolls please avoid me unless I interact first. Please avoid interacting with me if you are above the age of 18, you can whisper me a crown or compliment my ponies but please don't try to be my friend. Also 13- dni as well.
+
+
+-# if you have any questions check out my ata
