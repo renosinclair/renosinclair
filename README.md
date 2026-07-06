@@ -3,19 +3,11 @@
 <img width="670" height="222" alt="image" src="https://github.com/user-attachments/assets/37f08341-71d3-4e0f-8be9-1d13dfb84e8c" />
 
 -
-Hi! I'm Reno, if you are wanting to know more about me before you interact w/ me this is the place to be!
 
 ### ╭【   ♡・ Basic info 】  ・・
 
 
-・┈ ✦ ﹕name : Reno or any other nickname, you can also call me by the character I am cosplaying as
-*
-・┈ ✦﹕ age : 15
-*
-・┈ ✦﹕ my usual cosplays : Reno [can be found almost anywhere around the map] or Tartaglia/Childe [Genshin area]
-*
-・┈ ✦﹕ likes : my friends, other cosplayers
-*
+You can call me Reno or any other cosplay you see me in. You will often see me in my Reno or Childe cosplay. If you see me running around the map I'm prob just giving crowns to every cool pony I see. Feel free to c+h 24/7 it's highly encouraged! ALSO I love matching cosplays with others, please interact if you want to match cosplays of a common fandom we like.
 
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
 
