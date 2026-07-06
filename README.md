@@ -7,6 +7,7 @@ Hi! I'm Reno, if you are wanting to know more about me before you interact w/ me
 
 ### ╭【   ♡・ Basic info 】  ・・
 
+
 ・┈ ✦ ﹕name : Reno or any other nickname, you can also call me by the character I am cosplaying as
 -
 ・┈ ✦﹕ age : 15
