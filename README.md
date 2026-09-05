@@ -7,7 +7,7 @@
 ### ╭【   ♡・ Basic info 】  ・・
 
 
-You can call me Reno or any other cosplay you see me in. You will often see me in my Reno or Childe cosplay. If you see me running around the map I'm prob just giving crowns to every cool pony I see. Feel free to c+h 24/7 it's highly encouraged! ALSO I love matching cosplays with others, please interact if you want to match cosplays of a common fandom we like.
+You can call me Emma or any other cosplay you see me in. You will often see me in my Reno or Childe cosplay. If you see me running around the map I'm prob just giving crowns to every cool pony I see. Feel free to c+h 24/7 it's highly encouraged! ALSO I love matching cosplays with others, please interact if you want to match cosplays of a common fandom we like.
 
 
 ⎯⎯⎯⎯ ・ ✧・ ⎯⎯⎯⎯
