@@ -28,5 +28,5 @@ You can call me Emma or any other cosplay you see me in. You will often see me i
 
 INT : FF7, Genshin, HSR, Marvel, Cosplayers in general, people who are wantin to be friend obvi, yumeshippers
 
-DNI : Basic DNI, if you dislike yumeshippers or [fiction]kins (a lot of my friends are yumeshippers and kinnies), trolls please avoid me unless I interact first. 
+DNI : Basic DNI
 
