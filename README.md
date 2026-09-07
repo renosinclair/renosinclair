@@ -1,6 +1,6 @@
 # Emma BFYI + Info
 
-<img width="670" height="222" alt="image" src="https://github.com/user-attachments/assets/37f08341-71d3-4e0f-8be9-1d13dfb84e8c" />
+<img width="670" height="222" alt="image" src="[https://github.com/user-attachments/assets/37f08341-71d3-4e0f-8be9-1d13dfb84e8c](https://i.pinimg.com/736x/53/47/39/534739efc124c4e8afd7071ea8227fbb.jpg)" />
 
 -
 
