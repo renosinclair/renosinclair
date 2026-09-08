@@ -21,11 +21,11 @@ You can call me Emma or Emily! I do not mind which! I am an INTP 6w5 (cause I li
  
  🌙 : 100% offtab, on call, playing a game ect. Feel free to sit with me, c+h is VERY encouraged. 
  
- ⛔ : My DNI, this is usually DNIUF unless it says otherwise in my name! Usually it's because I'm with a friend or currently unable to reply to any messages. This is STRICTLY towards messaging ect, you can still whisper crowns or sit with me! [I wouldn't play this game when I'm upset or something that's weird]
+ ⛔ : Usually means offtab as well but more restricted to a "dniuf" thing, I still accept crowns idrc and c+h just don't both me otherwise (I won't be angry ofc I just won't respond)
  
 ### ╭【   ♡・ INT / DNI 】  ・・
 
-INT : FF7, Genshin, HSR, Marvel, Cosplayers in general, people who are wantin to be friend obvi, yumeshippers
+INT : FF7, Genshin, HSR, Marvel, Cosplayers in general, people who are wantin to be friend obvi, yumeshippers, veil fans, anyone really idm who I sit with it's a pony pixel game
 
 DNI : Basic DNI
 
